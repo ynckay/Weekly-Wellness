@@ -1,0 +1,9 @@
+I work in a contact center for pet insurance. (Accident and illness coverage for cats and dogs.) A lot of our policy holders are being impacted by COVID-19 and in response we sent out a mass email entailing what we are doing to help our customers.
+
+We are postponing cancellations for nonpayment until at least June and offering plan changes outside of usual business rules. We already don't charge late fees as it is and unlike most insurance, if you lapse and need to claim something, all you do is pay your bill and the coverage backdates. So all in all we're pretty flexible, but as an insurance company, we aren't able to waive premium, suspend coverage, or reduce it without changing the policy.
+
+So this woman calls in today and says she got our email and wants to know what we can offer her. I see that she pays annually and her dog's plan isn't up for renewal until July. So I explain that we are offering flexibility with payments currently due and plan changes to reduce premiums. I also explain that she is paid in full and does not need to worry about payments until July. I tell her at that time, we hope the virus is no longer so detrimental but that she can make changes closer to her renewal date.
+
+She gets upset and wants to know why we can't discount her premium now, without making plan changes. I reiterated again that she doesn't owe us premium for 3 months so she isn't at risk for cancellation anyway. I stay sympathetic until maybe the third time she reiterated how it's unfair that she has to have less coverage to pay less money.
+
+I know my company is doing all we can to help so I shut her down with insurance law and told her to call within 60 days of renewal if she was still impacted by the virus. She got intimidated and played nice after that. Still though, what audacity. I shouldn't have to pull out insurance law to make someone act respectful.
